@@ -5,7 +5,7 @@ Edit from main
 
 # H1 Loki Series from Marvel is my favorite
 
-**Loki is one of the most popular characters in the Marvel Cinematic Universe (MCU), and for good reason. He is a complex and fascinating character with a rich backstory, and his performances by Tom Hiddleston have been consistently praised. Here are some of the reasons why Loki is so popular: **
+**Loki is one of the most popular characters in the Marvel Cinematic Universe (MCU), and for good reason. He is a complex and fascinating character with a rich backstory, and his performances by Tom Hiddleston have been consistently praised. Here are some of the reasons why Loki is so popular:**
 
 1. Complexity and Ambiguity: Loki is not a simple villain or hero. He is a morally ambiguous character with a lot of gray areas. He is capable of both great evil and great good, and his motivations are often complex and conflicted. This makes him a very interesting and unpredictable character to follow.
 
